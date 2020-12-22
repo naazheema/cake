@@ -1,0 +1,1 @@
+take egg in a bowl, add powder sugar mix, add salt , venilla essence, oil mix well, seive the flour in another bowl add coco powder and also baking sode. add the dry ingrediants to the wet ingridiants slowly and cut and fold. grease the baking pan pour th batter. cook for 1.5 hrs in the closed cooker with salt. your cake is ready
